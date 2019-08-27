@@ -28,9 +28,9 @@ Quelíceras à mostra e dentes de encontro ao vento de verão, uma menina desesp
 Um grito rasgou o silêncio do cerrado. Assis segurou seu machado com força e disse à Barbie, que seguia-no em todo trajeto: "Achei".
 
 
-## 404 - O encontro da mãe do Alcides
+## 404 - O encontro da mãe do idiota
 
-Em 15 de Dezembro a mãe do Alcides vai comprar cigarro, mas não volta. Ele fica pendurado na janela esperando ela chegar. Ele engorda, engorda e engorda. Passou 20 anos esperando ela chegar, mas nunca chegou. De tanto tempo esperando, ele engordou e se transformou no famoso Michelin
+Em 15 de Dezembro a mãe do idiota vai comprar cigarro, mas não volta. Ele fica pendurado na janela esperando ela chegar. Ele engorda, engorda e engorda. Passou 20 anos esperando ela chegar, mas nunca chegou. De tanto tempo esperando, ele engordou e se transformou no famoso Michelin
 
 
      ````    `````    `````    ````     ````     ````     ````     ````     ````     ````    `````    `````    ````     ````     ````     ````     ````     ````     ````    `````    `````    ````
