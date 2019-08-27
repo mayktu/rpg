@@ -4,6 +4,7 @@
 
 Em um dia Canadá sentiu um cheiro muito bom de pão de queijo, enquanto estava jogando UNO com seus amigos do PET-PCC. O cheiro do pão de queijo começa a ficar cada vez mais forte, até que ela sente um cheiro poderoso de testosterona e entra pela janela o Machado de Assis, destruindo seu jogo de UNO e matando todos os seus amigos do PET-PCC os orgãos de todos os membros voam pelas paredes e grudam nas paredes toda a sala é embuída de um cheiro de sangue e as paredes são pintadas de vermelho.
 
+
 ### Capítulo 2: Pão de alho é bom
 
 Porque mudou a vida do Edivaldo? Porque ele parou de fazer pão de batata e começou a fazer pão de alho e todo mundo ama pão de alho.
@@ -124,3 +125,6 @@ Em 15 de Dezembro a mãe do Alcides vai comprar cigarro, mas não volta. Ele fic
 
 
 No caminho, Pessoa descobre que o caso se trata de um assassinato: uma mulher desconhecida é encontrada sem seus membros, presa em uma árvore. Seus membros estão na terra, formando a letra A.
+
+### Capitulo 157:
+Em um dia tranquilo, Moaciar e sua lambreta caminhavam lado a lado, isso mesmo, lado a lado, pois sua lambreta estava sem gasolina. Como era um velho foda e muito esperto, decidiu encher o tanque, ele então se encaminhou até o posto de gasolina e foi nesse momento que sua vida estaria prestes a mudar novamente. Ao chegar no posto, Moacir foi surprendido por um joven rapaz que estava o esperando, era Nero, com toda sua sagacidade e raiva unica, Nero então com uma certa malandragem no falar, propos à Moacir uma missão historica ...
