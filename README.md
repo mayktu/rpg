@@ -4,7 +4,13 @@
 
 Em um dia Canadá sentiu um cheiro muito bom de pão de queijo, enquanto estava jogando UNO com seus amigos do PET-PCC. O cheiro do pão de queijo começa a ficar cada vez mais forte, até que ela sente um cheiro poderoso de testosterona e entra pela janela o Machado de Assis, destruindo seu jogo de UNO e matando todos os seus amigos do PET-PCC os orgãos de todos os membros voam pelas paredes e grudam nas paredes toda a sala é embuída de um cheiro de sangue e as paredes são pintadas de vermelho.
 
+### Capítulo 2: Pão de alho é bom
 
+Porque mudou a vida do Edivaldo? Porque ele parou de fazer pão de batata e começou a fazer pão de alho e todo mundo ama pão de alho.
+Principalmente os idiotas do PET-BCC UFSCar que começaram a sempre pedir pão de alho junto com os salgados da Moça do Salgado nos churrascos 
+organizados pela comissão de Integração.
+E quem era o homem misterioso? Muitos dizem que é o Douglas O Misterioso, queriam chamar a Pessoa (ou as Pessoa?) para descobrir se é verdade, mas ele
+estava muito ocupado resolvendo um outro caso.
 
 ### Capítulo 43: A volta dos que não foram
 
@@ -113,4 +119,5 @@ Em 15 de Dezembro a mãe do Alcides vai comprar cigarro, mas não volta. Ele fic
 
 
 ### Capitulo 12 Goku com nervos a flor da pele ao descobrir que Assis mataras seu irmao de sangue Edivaldo a pedradas de frutas no corredor do Frio Quente, descobriras nessa mesma tarde que a MoçadoSalgado casarás com Teriaki depois de fugir para a floresta juntamente com Canada e ter 5 filhos ogros, assim nascera Alcides o terceiro de seu nome depois de Junior Jr. Mas logo o de menor rei Leonardo foi para o subterraneo com moacir. 
+
 
