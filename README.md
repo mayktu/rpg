@@ -134,3 +134,8 @@ Em um dia tranquilo, Moaciar e sua lambreta caminhavam lado a lado, isso mesmo, 
 Na floresta, com suas barbies no bolso, Alcides corria atrás de sua próxima vitima de trollagem.
 No horizonte, notou a figura notória de uma queimada do cerrado, com um louco mara vilhoso sorrindo. 
 
+# Capitulo 3
+
+	Era uma vez uma menina chamada chapeuzinho vermelho, uma garota que amava sua vó e sempre iria visita-lá.
+	Contudo, após o encontro catastrófico de chapeuzinho com o mundo das drogas, seu mundo se abalou. O local de encontro entre chapeuzinho e sua perdição foi a micareta do miranda, um encontro de pessoas sem deus no coração.
+	Após essa catastrofe a avó nunca mais viu sua neta.
