@@ -109,3 +109,6 @@ Em 15 de Dezembro a mãe do Alcides vai comprar cigarro, mas não volta. Ele fic
      ````    `````    `````    ````     ````     ````     ````     ````     ````     ````    `````    `````    ````     ````     ````     ````     ````     ````     ````    `````    `````    ````
     `````    `````    `````    `````    ````     ````     ````     ````     ````    `````    `````    `````    `````    ````     ````     ````     ````     ````    `````    `````    `````    `````
 
+
+### Capitulo 12 Goku com nervos a flor da pele ao descobrir que Assis mataras seu irmao de sangue Edivaldo a pedradas de frutas no corredor do Frio Quente, descobriras nessa mesma tarde que a MoçadoSalgado casarás com Teriaki depois de fugir para a floresta juntamente com Canada e ter 5 filhos ogros. 
+
