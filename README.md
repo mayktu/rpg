@@ -119,10 +119,8 @@ Em 15 de Dezembro a mãe do idiota vai comprar cigarro, mas não volta. Ele fica
 
 
 
-### Capitulo 12 Goku com nervos a flor da pele ao descobrir que Assis mataras seu irmao de sangue Edivaldo a pedradas de frutas no corredor do Frio Quente, descobriras nessa mesma tarde que a MoçadoSalgado casarás com Teriaki depois de fugir para a floresta juntamente com Canada e ter 5 filhos ogros, assim nascera Alcides o terceiro de seu nome depois de Junior Jr. Mas logo o de menor rei Leonardo foi para o subterraneo com moacir. 
-
-
-
+### Capitulo 12 
+Goku com nervos a flor da pele ao descobrir que Assis mataras seu irmao de sangue Edivaldo a pedradas de frutas no corredor do Frio Quente, descobriras nessa mesma tarde que a MoçadoSalgado casarás com Teriaki depois de fugir para a floresta juntamente com Canada e ter 5 filhos ogros, assim nascera Alcides o terceiro de seu nome depois de Junior Jr. Mas logo o de menor rei Leonardo foi para o subterraneo com moacir. 
 
 No caminho, Pessoa descobre que o caso se trata de um assassinato: uma mulher desconhecida é encontrada sem seus membros, presa em uma árvore. Seus membros estão na terra, formando a letra A.
 
